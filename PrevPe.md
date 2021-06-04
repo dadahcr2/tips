@@ -1,0 +1,37 @@
+# Previous public event tracks   
+- 20210526 **The Fast and the Last (2km adv)** Beach, City, Forest, Desert, Bog  
+- 20210519 **Momentous Momentum (timed)** Trial of Balance, Whipclash, Visions of Victory, Captain's Log, The Big Dunes, Four-Wheel Park, Flipway, Hot Tarmac, No Step on Snek, Like a Hawk, Twisted Trees
+- 20210512 **Dark Side of the HIll (Moon Long Jump)** Moon jump 1-6  
+- 20210505 **Anger Management (Breaking)** Demolition 1-6  
+- 20210428 **Jump like you mean it (Multi Jump)** Multi jump 1-10  
+- 20210421 **Tractor Wars (Tractor)** Beach Boys, Bumpy Ride, No Skidding, Hot Tarmac, SeeSaw Road, Showgrounds, Silo Showdown, The Dip, The Dunes, Trial of Fall 
+- **Counterbalance Crisis (Wheelie)** Wheelie 1-9: Country, Beach, Mine, Underwater, Winter, Bog, Mountain, Desert, Glacier 
+- **Cheese Wheel (Moon Stunts)** Moon Jumps, Lunar Base, Rocket Jump, Over the Base, Depths of the Moon, Antenna Field, Tunnel Route, Two Passages, Moon Loops - **Egg carting (cargo)** Muddy road, Happy miner Whipclash, Lost in transmission, The dip, The quarry, Smooth curves, Logs and rocks, Fury road, Spartan Racing, Barn ride
+- **Mono Wars 2 (monowheel)** Big Air, Happy Camper, Bill’s landing, Let it snow, The big dunes, Happy Miner,  Trial of Balance, Face Plant,  Nose Miner, Captain’s Log 
+- **Accelerating Allergies (Timed)** Muddy road, Circuit 9, Down the tube, Tired alligators, Coral quarrel, Take off, Trials of fall, The Quarry, Fast lane, Highs and lows -  *Superbike afterburner coinboost wings*
+- **Sky Rock Sonnet (Moon Long Jump)** Moon Jump 1-6
+- **Red Car'd (Long Kick)** Long Kick 1-8 
+- **Top Gear Bottom Gear (Uphill Climb)** Up’n’Up, Sky’s the Limit, Top of the World, Over the Top, Up, Up and Away, Mount Dizzy, To the Summit, King of the Hill, Climb It
+- **Lug-Nuts and Leadfoots (Nian Chase)** nian chase, home sweet home, angry beast, night of nian - *Rally WinterTires Wings CoinBoost*
+- **Choco-Carting Chaos (Cargo)** Beach Boys (Beach Cup) The Pond (Cup in the Woods), Snow Time, Yellow Snow (Winter Cup), Four-Wheel Park (Countryside Cup), Barn Ride (Challenger Cup), The Dark Knuckle - *Hotrod CoinBoost FuelBoost Magnet/LandingBoost*
+- **Got a Crush on You (Smashing Hearts)** Valentines 1-5
+- **Pass on with Difficulty (Timed)** Moon Jumps, Over the Base, Antenna Field, Man in the Moon, Moon Maze, Rocket Jump, Depths of the Moon, Tunnel Route
+- **Winterful Life (Long Jump)** Forrest Jump, Jump in the Woods, Mine Jump, Mountain Jump, Steep Mountain Jump, Beach Jump, Bogwater Jump, Ski Jumping Hill, Glacier Jump, Underwater Jump , Countryside Jump, AirTime
+- **Vertical Limit (Wheelie)** Wheelie 1-9: Country, Beach, Mine, Underwater, Winter, Bog, Mountain, Desert, Glacier
+- **Drive Hard (Timed):** The Big Dunes, Four-Wheel Park, Flipway, Hot Tarmac, No Step on Snek, Like a Hawk, Trial of Balance, Whipclash, Visions of Victory, Captain's Log
+- **Sky Rock Samba (Moon stunts):** Moon Jumps, Lunar Base, Rocket Jump, Over the Base, Depths of the Moon, Antenna Field, Tunnel Route, Two Passages, Moon Loops
+- **Santa's Little Helper (Cargo):** Present panic, In a hurry,  Cargo express, Gifts in the air, Smooth ride, Let it snow, Slippery slope
+- **Shreddin' the Gnar (Flip):** Downhill, Castle Crash, Snow Tunnel, Ice Cavern, Down’n’Down, Snow Time
+- **Salt Water (Water):** 1-8
+- **Fan Favourites (Timed):** Captains log, The big dunes, Four wheel park, Flipway, Trial of balance
+- **Ground is Lava (Multi Jump):** 1-10
+- **Sticky wheels (No Airtime):** The great milenko, Echoside, Magnets, How do they work, Shore stone field, Smooth landings
+- **Moon Malarkey (Moon Jump):** 1-6
+- **Rotator Rampage (Timed):** Reverse, Double jump, Different approach, hold on, two islands 
+- **Graveyard Grand Prix (Chase):** Zombie:  run, sprint, valley, canyon, walk
+- **Pumkinata (Pumpkin Smash):** 1-5
+- **Zompede (Chase):** Zombie: mountain, cliff, land, hill
+- **Hill Climber Wars (Timed):** The Quarry, Factory Settings, Let it Snow, Bridges & Stones, Fury Road, Bat Country, Bill's Landing, Smooth Curves, The Dip, Heat Club, No Skidding, Bottom Gear
+- **Time-Attack from Outer Space (Timed):** Moon Jumps, Lunar Base, Rocket Jump, Over the Base, Depths of the Moon, Antenna Field, Tunnel Route, Two Passages, Moon Loops, Maze in the Moon, Coins in the Moon, Moon Shine, Man in the Moon, Moon Maze, Fly me to the Moon, Flipping Moon, Moonlight Sonata
+- **Hill-arious (Uphill):** 1-5
+- [Old events - from 2019](https://www.reddit.com/r/HillClimbRacing/wiki/hcr2/eventtips#wiki_event_tips_.28hcr2.29)
