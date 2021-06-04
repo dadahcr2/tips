@@ -1,6 +1,6 @@
 <details open markdown="block">
   <summary>
-    **Table of contents**
+	<strong>Table of contents</strong>
   </summary>
   {: .text-delta }
 1. TOC
