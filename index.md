@@ -1,3 +1,7 @@
+# This site is no longer being updated. Please go to <http://hcr2.info>
+
+
+
 <details open markdown="block">
   <summary>
 	<strong>Table of contents</strong>
